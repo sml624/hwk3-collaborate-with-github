@@ -1,0 +1,10 @@
+<h1> RISK
+<h2> By: Anais Nin
+And then the day came,
+when the risk
+to remain tight
+in a bud
+was more painful
+than the risk
+it took
+to blossom.
